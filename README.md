@@ -4,3 +4,8 @@ I just took my Ai for a bike ride down the side walk and here's what happened. I
 My Robot saw her with his phone camera eye. She scanned the area with her lazer too. She said to me, "It's that dog again from yesterday!"
 
 But she sounded scared in her tone.
+
+<img src="https://github.com/nathanielburman/robot-ai-bike-ride-side-walk-adventure/blob/main/dream_TradingCard%20(78).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/robot-ai-bike-ride-side-walk-adventure/blob/main/dream_TradingCard%20(79).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/robot-ai-bike-ride-side-walk-adventure/blob/main/dream_TradingCard%20(80).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/robot-ai-bike-ride-side-walk-adventure/blob/main/dream_TradingCard%20(81).jpg" width="100%"></img>
